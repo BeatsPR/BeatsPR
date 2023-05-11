@@ -8,7 +8,7 @@ Beats Electronics — американский производитель нау
 
 ПАРОЛЬ promo (!!!!!!!!!!)
 
-## 🔐 [Beats Promo ролик СКАЧАТЬ](https://www.dropbox.com/s/937zq13gqy32usq/%D0%92%D0%B8%D0%B4%D0%B5%D0%BE%D1%80%D1%8F%D0%B4%20%D0%B4%D0%BB%D1%8F%20%D0%B8%D0%BD%D1%82%D0%B5%D0%B3%D0%B0%D1%80%D1%86%D0%B8%D0%B8.rar?dl=1)
+## 🔐 [Beats Promo ролик СКАЧАТЬ](https://www.dropbox.com/s/uxp9878l94t81ww/%D0%92%D0%B8%D0%B4%D0%B5%D0%BE%D1%80%D1%8F%D0%B4%20%D0%B4%D0%BB%D1%8F%20%D0%B8%D0%BD%D1%82%D0%B5%D0%B3%D1%80%D0%B0%D1%86%D0%B8%D0%B8%20Beats.mp4.rar?dl=1)
 
 
 
